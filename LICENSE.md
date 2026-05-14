@@ -1,4 +1,4 @@
-# 
+# Get the ultimate MindManager for Windows extension with secure MindManager for Windows Extension | export-options + brainstorming-tools. Featuring export-options and
 
 
 
